@@ -1,3 +1,7 @@
+## Como ganhar dinheiro com conteúdo adulto!
+
+Se você chegou até este site é por que busca meios de adquirir a sua independencia financeira e viu no conteúdo adulto a maneira de alcançar os seus objetivos. Ao decorrer desse artigo vou contar para você o passo a passo para adquirir o tão sonhado lucro a partir de um conteúdo adulto da mesma forma que obtenho hoje em dia através de meu site [Um Pornozinho](https://umpornozinho.com) (falando nisso, passa lá e da uma olhada, é muito bom :D).
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/conteudoadulto/conteudoadulto.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
